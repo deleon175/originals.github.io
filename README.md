@@ -1,1 +1,1 @@
-# brandwagon.github.io
+# originals.github.io
